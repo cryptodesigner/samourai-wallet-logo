@@ -6,3 +6,4 @@ Vectorized Samourai Wallet Logo
 
 ##### Donation BTC: https://paynym.is/+whitewildflower06F
 ##### PM8TJbf1fvYXRJmVUiErNRdzEuNzrtH4Yx9ABKa2Qk9no5ca7HXUgezD715x536iKBv3Y9xSBzb48cTP5eQUXa4d2kznb2Vtv71CvAkqQYfut6Ve4BTc
+##### Donation BTC: 1Design1X8rTzznB7e26xKZ2XGEgZQkeHX
